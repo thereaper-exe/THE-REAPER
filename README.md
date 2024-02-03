@@ -10,3 +10,5 @@ int main() {
 }
 
 The main thing is that you and your loved ones are healthy. And you can simply surpass the rest in a day. Good luck bro!
+
+© kiotomurau
