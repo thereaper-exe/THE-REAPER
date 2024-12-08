@@ -2,4 +2,4 @@
 
 Но, не перебарщивай.
 
-© kiotomurau
+© THE REAPER
